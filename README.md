@@ -8,6 +8,7 @@ leon
 taken ♡ don't be weird, man
 
 ⠀⠀ ⠀ ⠀⠀⠀ ⠀⠀ ⠀ ⠀⠀⠀
+[hi]([image-url](https://www.picmix.com/pic/wesker-good-morning-12075361))
 
 
 read my stuff. strwp is an extended list of my interests though 
